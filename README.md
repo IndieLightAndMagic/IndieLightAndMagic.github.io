@@ -1,8 +1,8 @@
 ###Proyecto final de marca personal
 
-Encuentra cómo construir tu marca personal desde cero en:
+www.julianguarin.com/marca
 
-www.platzi.com/marca
+Una de las cosas que hago es ayudarte con tus marcas personales, te doy las herramientas que necesitas desde el software y hardware. 
 
 
 ***
