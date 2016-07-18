@@ -1,6 +1,6 @@
-###Proyecto final de marca personal
+###Julian Guarin - Programador - Arquitecto HW / SW
 
-www.julianguarin.com/marca
+www.julianguarin.com
 
 Una de las cosas que hago es ayudarte con tus marcas personales, te doy las herramientas que necesitas desde el software y hardware. 
 
